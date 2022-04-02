@@ -8,7 +8,7 @@ Habilidades: PY / JS / HTML
 
 - 🔭 Estoy trabajando en NortonCraft 
 - 🌱 Estoy aprendiendo java 
-- 🤔 Necesito ayuda con css 
+- 🤔 Necesito ayuda en todo :v 
 - 📫 Cómo contactarme: quepasaguanacos@hotmail.com 
 - 😄 Pronombres: SirWorldBan 
 - ⚡ Dato curioso: me gusta los helados 
